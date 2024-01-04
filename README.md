@@ -1,4 +1,4 @@
-i put code on rockets sometimes
+i put code in rockets sometimes
 
 discord: chopster44
 
